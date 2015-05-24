@@ -7,7 +7,7 @@ title: What paternity leave was like and why America should embrace it
 
 After two and half weeks paid paternity leave I’m sad it’s coming to a close. I didn’t expect to feel this way. I thought I’d be anxious to get back to work and that my days alone with a 3-month-old, disengaged from the adult world, would become tiresome and lonely. It has been a special experience, one I would not trade for anything else. 
 
-Sprout recently started offering a full month’s paid paternity leave and after Arin was born in February, I opted to use a portion immediately and then another chunk once Megan’s maternity leave was eaten up after 12 weeks. As the days to paternity leave approached I began to calculate what my days would be like. How often does he eat? How often does he nap? How will I keep him engaged? What milestones should I watch out for?
+[Sprout](http://www.sproutsocial.com) recently started offering a full month’s paid paternity leave and after Arin was born in February, I opted to use a portion immediately and then another chunk once Megan’s maternity leave was eaten up after 12 weeks. As the days to paternity leave approached I began to calculate what they would be like. How often does he eat? How often does he nap? How will I keep him engaged? What milestones should I watch out for?
 
 I’d obviously been around for the first 3 months (engaged I might add, not just hanging out on the sidelines), but I don’t think I fully comprehended what daily life was like. I helped out however I could and Megan made sure I stayed on track. I assumed it was hard. But to assume something doesn’t mean you really know what the hell is going on. 
 
@@ -19,11 +19,11 @@ But what made it feel easy was all the other stuff. The important stuff. He star
 
 And that’s just the Arin stuff. There’s a lot of other good that came from exercising paternity leave. 
 
-The immediate gain was Megan being able to go back to work without our feeling the need to send Arin straight to daycare at 3 months. Instead we get to extend it by a little longer with paternity leave and then some quality grandma/nanamma time in the next month. If we had more flexibility we’d push it to at least 6 months, but this works. 
+The immediate gain was Megan was able to go back to work without our feeling the need to send Arin straight to daycare at 3 months. Instead we get to extend it by a little longer with paternity leave and then some quality grandma/nanamma time in the next month. If we had more flexibility we’d push it to at least 6 months, but this works. 
 
 With Megan back to work I also got to see what daily life was like at home and I think I’m a lot more sympathetic to what it takes to properly run a home with two kids and two working parents. It’s not easy. I think I took a lot for granted even though I’m sure I said, “Oh yeah, I understand”. I didn’t. And it makes sense, The New York Times [noted](http://www.nytimes.com/2014/11/09/upshot/paternity-leave-the-rewards-and-the-remaining-stigma.html?abt=0002&abg=1), “Fathers who take longer paternity leaves are more likely to perform certain daily child care tasks nine months later than those who take no leave, even when controlling for variables such as the father’s prior parental involvement.”
 
-My biceps and back have grown stronger. My patience has improved. I got to hack parenting a little bit while studying up on 3-month-olds and implementing strict schedules. I did more cooking in the past two and half weeks than I have probably in the last year. 
+My biceps and back have grown stronger. My patience has improved. I got to hack parenting a little bit while studying up on 3-month-olds and implementing strict schedules. I did more cooking in the past two and half weeks than I probably have in the last year. 
 
 I feel my bond has grown stronger with Arin than it would have had I not been on leave. On the whole my parental skills have jumped a level or two.  
 
