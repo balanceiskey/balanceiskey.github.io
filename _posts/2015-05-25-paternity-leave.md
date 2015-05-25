@@ -7,7 +7,7 @@ title: What paternity leave was like and why America should embrace it
 
 After two and half weeks paid paternity leave I’m sad it’s coming to a close. I didn’t expect to feel this way. I thought I’d be anxious to get back to work and that my days alone with a 3-month-old, disengaged from the adult world, would become tiresome and lonely. It has been a special experience, one I would not trade for anything else. 
 
-[Sprout](http://www.sproutsocial.com) recently started offering a full month’s paid paternity leave and after Arin was born in February, I opted to use a portion immediately and then another chunk once Megan’s maternity leave was eaten up after 12 weeks. As the days to paternity leave approached I began to calculate what they would be like. How often does he eat? How often does he nap? How will I keep him engaged? What milestones should I watch out for?
+[Sprout Social](http://www.sproutsocial.com) recently started offering a full month’s paid paternity leave and after Arin was born in February, I opted to use a portion immediately and then another chunk once my wife Megan’s maternity leave was eaten up after 12 weeks. As the days to paternity leave approached I began to contemplate what they would be like. How often does he eat? How often does he nap? How will I keep him engaged? What milestones should I watch out for?
 
 I’d obviously been around for the first 3 months (engaged I might add, not just hanging out on the sidelines), but I don’t think I fully comprehended what daily life was like. I helped out however I could and Megan made sure I stayed on track. I assumed it was hard. But to assume something doesn’t mean you really know what the hell is going on. 
 
@@ -15,7 +15,7 @@ And so paternity leave began. It wasn’t so bad. Maybe even easy?
 
 Well, I shouldn’t say that. Easy, makes it seem like the job itself is easy, which isn’t fair. You throw any desire to control time out the window and live and die by the nap. Your boss becomes a fickle small person. You find yourself cursing the moments when an angry baby demands to know why you were cleaning loudly while he was sleeping or why you don’t have his bottles ready ASAP post-nap. From time-to-time he’ll also spit on you for no reason whatsoever. And showering becomes exceedingly low priority to the point that days may pass before you realize things are starting to get funky.[^2]
 
-But what made it feel easy was all the other stuff. The important stuff. He started rolling over. He smiles nearly non-stop. I know precisely how to make him laugh (and cry), how to generate deep 3-hour naps (10 minute walk outside and then wheeled back into the abyss that is our laundry room, with check-ins every 15 minutes to make sure he’s still breathing) and how to change his diaper but be ready for when he tries to pull a fast one mid-change. For such a short period he’s grown a lot. His personality is emerging quickly and I didn’t get to see this in the same way with my older son Adya, for which I am already deeply regretful. I wish I could have.
+But what made it feel easy was all the other stuff -- the important stuff. He started rolling over. He smiles nearly non-stop. I know precisely how to make him laugh (and cry), how to generate deep 3-hour naps (10 minute walk outside and then wheeled back into the abyss that is our laundry room, with check-ins every 15 minutes to make sure he’s still breathing) and how to change his diaper but be ready for when he tries to pull a fast one mid-change. For such a short period he’s grown a lot. His personality is emerging quickly and I didn’t get to see this in the same way with my older son Adya, for which I am already deeply regretful. I wish I could have.
 
 And that’s just the Arin stuff. There’s a lot of other good that came from exercising paternity leave. 
 
@@ -25,7 +25,7 @@ With Megan back to work I also got to see what daily life was like at home and I
 
 My biceps and back have grown stronger. My patience has improved. I got to hack parenting a little bit while studying up on 3-month-olds and implementing strict schedules. I did more cooking in the past two and half weeks than I probably have in the last year. 
 
-I feel my bond has grown stronger with Arin than it would have had I not been on leave. On the whole my parental skills have jumped a level or two.  
+My bond with Arin has grown stronger than it would have without leave. On the whole my parental skills have jumped a level or two.  
 
 Which brings us to another point in all of this: Why did Sprout let me take off a month for paternity leave? What’s the benefit for my employer to pay to lose me for a month outside of my regular PTO (which is also pretty fantastic)? 
 
@@ -45,7 +45,9 @@ There’s also this: [The United States remains the only developed country to no
 
 > “…low-income families don’t have the option for one parent to stay home from work, or for either parent to take unpaid leave. Paying for adequate childcare is also more of a challenge. Since having parents at home is an important ingredient in a child’s success in school and life, the discrepancy between paid leave for lower- and higher-income families will only exacerbate growing inequality,” — [Forbes contributor Ana Swanson](http://www.forbes.com/sites/anaswanson/2015/01/30/why-paternity-leave-is-just-for-the-rich/).
 
-This is something all American companies should strive to provide for their employees. It will improve fathers. It will improve fatherhood. It will improve the lives of their partners and children. And it will thus improve life as an employee. Happy and productive are stitched together. 
+This is something all companies should strive to provide for their employees. It will improve fathers. It will improve fatherhood. It will improve the lives of their partners and children. And it will thus improve life as an employee. Happy and productive are stitched together. 
+
+*Special thanks to [Alan Boyce](https://www.twitter.com/aboyce) and [Megan Malladi](https://twitter.com/megeth124) for reading drafts and providing great feedback during the course of writing this piece.*
 
 [^1]:	via Real Simple (I took my domestication seriously. / They have fantastic recipes.) 
 
