@@ -5,7 +5,7 @@ title: You can use moment-timezone to mock timezones in Jasmine
 
 I think. 
 
-Imagine you've got a Jasmine spec that tests that a given moment-backed library or function returns a local hour and day for a given UTC hour and day. It looks something like this:
+Imagine you've got a Jasmine spec that tests that a given moment-backed function returns a local hour and day for a given UTC hour and day. It looks something like this:
 
 ```javascript
 
